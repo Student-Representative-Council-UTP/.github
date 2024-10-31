@@ -1,3 +1,5 @@
+![srcutp-banner](https://github.com/user-attachments/assets/69fe85a3-3574-4966-8c5f-898ad4d270fa)
+
 # Student Representative Council Universiti Teknologi PETRONAS (SRCUTP)
 
 The **Student Representative Council Universiti Teknologi PETRONAS (SRCUTP)** serves as the voice and advocate for the student body at Universiti Teknologi PETRONAS (UTP). Our council is dedicated to creating a positive and engaging environment on campus by supporting students' rights, organizing impactful events, and promoting a vibrant academic and social culture.
